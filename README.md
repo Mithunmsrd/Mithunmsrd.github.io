@@ -1,2 +1,2 @@
-# Mithunmsrd.github.ip
+# Mithunmsrd.github.io
 Website hosting
